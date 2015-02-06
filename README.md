@@ -1,2 +1,4 @@
-# hero
-the hero  to come ture what i want
+# 目标
+清楚
+安静
+角色扮演
